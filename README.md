@@ -1,2 +1,2 @@
-# kitingard.github.io
+# kitingard invitation
 приглашение
